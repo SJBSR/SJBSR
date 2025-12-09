@@ -7,9 +7,9 @@
 
 - 📝 I'm learning to write articles on [medium.com](https://medium.com/@sjb.sr)
 
-- 📫 You can reach me by email at **sjb.sr@outlook.com**
+- 📫 You can also reach me by [email](sjb.sr@outlook.com)
 
-- ⚡ Fun fact **I like to read.**
+- ⚡ Fun fact ⚡ **A rising tide lifts all boats.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
